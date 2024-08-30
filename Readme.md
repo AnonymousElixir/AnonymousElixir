@@ -2,6 +2,8 @@
 <img width="760px" height = "428px" src="https://i.imgur.com/m3bwLvB_d.webp?maxwidth=760&fidelity=grand" alt="cover" />
 </div>
 
+<h4>New Acc Old One Got Banned Bcuz Of Some1 Who Spam Reported it</h4>
+
 <h1> 𝐇𝐞𝐥𝐥𝐨 𝐅𝐞𝐥𝐥𝐨𝐰 <𝐏𝐫𝐨𝐠𝐫𝐚𝐦𝐦𝐞𝐫𝐬/><img src = "https://raw.githubusercontent.com/rahulbanerjee26/githubProfileReadmeGenerator/main/gifs/wave.gif" width = 50px height='50px'> </h1>
 <p align='center'>
   
